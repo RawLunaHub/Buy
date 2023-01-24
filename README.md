@@ -1,5 +1,4 @@
-# 🏆 1# Buy Old items on blox fruits!
-# ✔ Licensed. Copyright isnt allowed!
-# 🎈 Non-Detecting
-# 🥇 Does not take computer data
-- Version 0.1
+# 🏆 First project of that type on blox fruits era r/RobloxExploting!
+✔ Licensed. Copyright isnt allowed!
+ 🎈 Non-Detecting
+  🥇 Does not take computer data
